@@ -1,3 +1,0 @@
-hellp
-redm
-ndnfdbn
